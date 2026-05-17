@@ -1,4 +1,4 @@
-
+Atualizado brainrot evolution script é o melhor brainrot evolution script com invisibilidade e venda automática. Seguro, confiável e otimizado para máximo desempenho.
 
 
 
